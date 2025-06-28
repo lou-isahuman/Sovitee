@@ -1,4 +1,4 @@
-THis Page is Outdated
+THis Page is Outdated, Please check out skye for a newer one!
 
 # Sovitee
 💜 A (probably) new way to manage your notes
